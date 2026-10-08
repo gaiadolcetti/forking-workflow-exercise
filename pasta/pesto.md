@@ -6,7 +6,7 @@
 - Garlic (around 4-6 cloves)
 - Pine seeds (One package)
 - Parmesan
-- Peccorino
+- Pecorino
 - Salt
 
 ## Instructions
